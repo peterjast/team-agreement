@@ -31,7 +31,7 @@ What is your strategy for ensuring everyone’s voice is heard?
 
 How will you ensure that you are creating a safe environment where everyone feels comfortable speaking up?
 
-Don't be a dick!
+Be kind!
 
 ## Work Plan
 
